@@ -1,5 +1,7 @@
 # FAQ
 
+## Where can I name my favorite sweets?
+
 ## How many photos can I post?
  
 We know you want to show off your fabulous furry face, so we’ve given you space to upload up to 15 photos! 
